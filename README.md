@@ -1,1 +1,0 @@
-# soryxacademy.github.io
